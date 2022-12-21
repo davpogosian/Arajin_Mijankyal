@@ -1,2 +1,2 @@
 ﻿//Arajin Mijankyali Labber
-//Mteq stegh
+//Mijankyali Filery nerqevum
